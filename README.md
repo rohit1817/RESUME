@@ -1,1 +1,1 @@
-Please fin my updated resume here
+Please find my updated resume here
